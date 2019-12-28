@@ -1,2 +1,2 @@
 # one_pigeon
-Hahahaha......and>>hahaha......
+Java is NO.1!!!
